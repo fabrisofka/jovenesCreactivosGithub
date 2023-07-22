@@ -1,5 +1,8 @@
-Hola Mundo!
+Hola Mundo con conglictos a resolver!
 
-Hola a Todos!
+Hola a asdfasdfasdf!
 
-HOLA A TODOS!
+HOLAaaaaaaaaaa A TODOS!
+
+
+Segunda Version
