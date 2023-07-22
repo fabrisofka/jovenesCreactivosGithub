@@ -1,8 +1,6 @@
-Holaaaaaaaa Mundo con conglictos a resolver!
+asdf
 
-Holaaaaaaaa a asdfasdfasdf!
+asdf
 
-HOLAaaaaaaaaaaaaaaaaaaa A TODOS!
+asdf
 
-
-Segunda Version
